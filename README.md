@@ -1,2 +1,2 @@
 # Welcome-WT20
-World of cricket
+Here comes the much awaited trucated format of cricket
